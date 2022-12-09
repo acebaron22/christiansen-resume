@@ -53,3 +53,10 @@ The Summer after I graduated High School, I sold Dish And DirectTV door to door 
 
 `2017-2019`
 __Employee, Greenfield Lakes Golf Course__
+
+While I was in High School, I had an amazing job working at Greenfield Lakes Golf Course. It was the perfect high school job for me. I was primarly responsible for washing and prepping the golf carts, picking up the range balls, and pulling the pins at the end of the night. My time at Greenfield taught me how to interact with other employees and supervisors and develop a love for work.
+
+
+<!-- ### Footer
+
+Last updated: May 2013 -->
